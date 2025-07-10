@@ -26,4 +26,4 @@
 总结
 “日本AV免费”关键词背后，是广大用户对优质免费视频资源的需求。通过选择安全、高清、更新及时的平台，并合理利用观看和下载技巧，你可以享受到最佳的观影体验。希望本文推荐能助你快速找到满意的日本AV免费资源，畅享视觉盛宴！
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/pls20250710/riben43215 ）</span>
